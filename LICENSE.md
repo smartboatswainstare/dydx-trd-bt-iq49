@@ -1,4 +1,4 @@
-# 
+# ultimate bot de negociação BitMEX executor é o melhor bot de negociação BitMEX executor com alta frequência e provisão de liquidez. Seguro, confiável e otimizado para estratégias
 
 
 
